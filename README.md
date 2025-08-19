@@ -20,8 +20,8 @@
   <br/><sup>ask to frq!</sup>
 
   <p align="center">
-  endos dni
-  <br/> roleplayers ask to interact
+  endogenic "systems" dni
+  <br/> roleplayers ask to interact!
   <br/> basic dni criteria otherwise, i block freely and hesitantly! <br/>
 
 <p align="center">
